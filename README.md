@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Rudra Pratap Pandey 
 **A passionate Software Engineer || Front-end Developer || from India**
 
 Email Me 👉 ✉️ **rudrapratappandey2005@gmail.com ** For Collaboration/Project or Anything Else. 😊😊
